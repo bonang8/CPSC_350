@@ -1,1 +1,2 @@
-# CPSC_350
+Clarisse Bonang
+2298162
